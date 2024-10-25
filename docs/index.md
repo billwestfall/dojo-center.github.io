@@ -7,7 +7,7 @@
     </div>
 </div>
 
-## Emotional Mastery, Wise Decisions - When It Counts
+## Emotional Mastery & Wise Decisions—When It Counts
 
 **Timing is everything. What value is emotional intelligence if it fails to show up in key moments or decisions that shape the trajectory of your personal and professional life?**
 
