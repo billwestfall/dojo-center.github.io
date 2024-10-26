@@ -17,7 +17,9 @@ layout: page
 
 ### Two Pathways to Mastery
 
-From your very first session, you’ll start seeing improvements—whether in the way you handle challenging conversations, make high-stakes decisions, or resolve conflict under pressure. Mindset Dojo offers two clear pathways:
+From your very first session, you’ll start seeing improvements—whether in the way you handle challenging conversations, make high-stakes decisions, or resolve conflict under pressure. 
+
+Mindset Dojo offers two clear pathways:
 
 #### 1. Focused Mastery Sessions: For Immediate Challenges
 
