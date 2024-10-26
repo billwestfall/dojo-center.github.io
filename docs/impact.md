@@ -3,7 +3,7 @@ title: Realizing Impactful Change
 layout: page
 ---
 
-At **Mindset Dojo**, we focus on helping individuals and teams master **emotional intelligence** and **systems thinking** in high-pressure situations. This mastery leads to **better conversations**, **wise decision-making**, and **authentic trust**—the foundation for sustainable success, both personally and professionally.
+At **Mindset Dojo**, we focus on helping individuals and teams master **emotional intelligence** and **systems thinking** in high-pressure situations. This mastery leads to **better, more meaningful conversations**, **wise decision-making**, and **authentic trust**—the foundation for sustainable success, both personally and professionally.
 
 The following high-level scenarios showcase the real-world impact of this approach:
 
