@@ -9,7 +9,7 @@ layout: page
 
 #### No Matter the Stakes, You Realize:
 
-- **Better conversations** that foster trust and connection.
+- **Better, more meaningful conversations** that foster trust and connection.
 - **Wise decision-making** that keeps you centered and strategic.
 - **Authentic trust** that strengthens relationships and fosters collaboration.
 
