@@ -15,7 +15,7 @@ A Fortune 500 business unit, struggling to adopt DevOps for years, unlocked new 
 
 **Impact:**
 
-- Millions in recurring revenue.
+- Millions of dollars in recurring revenue.
 - Rapid adaptation to economic changes and AI disruption.
 - Lasting cultural transformation, ensuring continued success and agility.
 
@@ -48,12 +48,12 @@ Explore more:
 
 ### Personal Conflict Mastery: Emotional Savings and Long-Term Impact
 
-In a high-conflict personal situation, the use of emotional intelligence led to trust-building and cooperative decision-making. This avoided further litigation and resulted in significant financial savings while creating a positive, stable environment for the children involved.
+In a high-conflict divorce situation, the use of emotional intelligence led to trust-building and cooperative decision-making. This avoided further litigation and resulted in significant financial savings while creating a positive, stable environment for the children involved.
 
 **Impact:**
 
 - Tens of thousands of dollars saved by avoiding further litigation.
-- Lasting co-parenting relationship built on trust, positively impacting the children involved.
+- Lasting co-parenting relationship built on trust, positively impacting the family involved.
 - Emotionally stable environment, supporting the children’s long-term well-being and growth.
 
 ---

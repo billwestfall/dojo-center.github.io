@@ -7,19 +7,19 @@
     </div>
 </div>
 
-## Emotional Mastery - When It Counts
-
-**Timing is everything. What value is emotional intelligence if it fails to show up in key moments or decisions that shape the trajectory of your personal and professional life?**
-
-At Mindset Dojo, we help individuals who are ready for personal evolution through the integration of **systems thinking** and **emotional awareness**. Unlike other programs that only focus on concepts, we emphasize the **practical application** of emotional intelligence in **real time**. You’ll master emotions, lead with wisdom, and build authentic trust when it matters most. By honing these skills in high-pressure situations, you’ll foster **better, more meaningful conversations**, make **wiser decisions**, and create **authentic connections** that drive sustainable success both personally and professionally.
-
----
-
 ### The Common Challenge
 
 We started Mindset Dojo because we saw a common issue in leadership—from Fortune 500 companies to small businesses. It was easy to get a “yes” to an idea, but hard to get that idea executed effectively, often leading to revenue challenges and cultural breakdowns that cost key performers and resulted in sleepless nights.
 
 We found that understanding the decision-making process and the role of emotions within it was essential. By creating the space for deeply informed decisions, with full emotional commitment from both leaders and teams, short-term success improved and long-term learning took root. This approach not only enhanced employee retention and strengthened culture, but also ensured passionate execution of revenue-generating ideas.
+
+---
+
+## Intentional, Insightful Decision Making - When It Counts
+
+**Timing is everything. What value is emotional intelligence if it fails to show up in key moments or decisions that shape the trajectory of your personal and professional life?**
+
+At Mindset Dojo, we help individuals who are ready for personal evolution through the integration of **systems thinking** and **emotional awareness**. Unlike other programs that only focus on concepts, we emphasize the **practical application** of emotional intelligence in **real time**. You’ll master emotions, lead with wisdom, and build authentic trust when it matters most. By honing these skills in high-pressure situations, you’ll foster **better, more meaningful conversations**, make **wiser decisions**, and create **authentic connections** that drive sustainable success both personally and professionally.
 
 ---
 
