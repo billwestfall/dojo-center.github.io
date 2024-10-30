@@ -27,7 +27,7 @@ At Mindset Dojo, we help individuals who are ready for personal evolution throug
 
 Many strategies falter under daily operational pressures because they lack a clear, adaptive approach to change—both at the personal and team levels.
 
-At Mindset Dojo, we focus on sustainable change by addressing the intersection of individual world of the individual, the social dynamics of the team, and the optimization of decisions for efficient execution and results. Our learning and collaboration zones empower teams to engage with complexity, adapt in real time, and build resilience, ensuring they thrive through change rather than being overwhelmed by it.
+At Mindset Dojo, we focus on sustainable change by addressing the intersection of world of the individual, the social dynamics of the team, and the optimization of decisions for efficient execution and results. It is the world of the individual that bridges the gap between a visionary idea—whether corporate or personal—and its execution. Our learning and collaboration zones empower teams to engage with complexity, adapt in real time, and build resilience, ensuring they thrive through change rather than being overwhelmed by it.
 
 Our methods have proven especially effective in corporate environments, leadership circles, Agile practices, and DevOps initiatives, where adaptability and integrative thinking are crucial for success.
 
