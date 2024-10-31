@@ -27,9 +27,9 @@ At Mindset Dojo, we help individuals who are ready for personal evolution throug
 
 Many strategies falter under daily operational pressures because they lack a clear, adaptive approach to change—both at the personal and team levels.
 
-At Mindset Dojo, we focus on sustainable change by addressing the intersection of internal world of the individual, the social dynamics of the team, and the optimization of decisions for efficient execution and results. It is the internal world of the individual that bridges the gap between a visionary idea—whether corporate or personal—and its execution. 
+At Mindset Dojo, we focus on sustainable change by addressing the intersection of the internal world of the individual, the social dynamics of the team, and the optimization of decisions for efficient execution and meaningful results. It is the internal world of the individual that bridges the gap between a visionary idea—whether corporate or personal—and its execution. 
 
-Our learning and collaboration zones empower teams to engage with complexity, adapt in real time, and build resilience, ensuring they thrive through change rather than being overwhelmed by it.  In terms of application, our approach and methods have proven especially effective in corporate environments, leadership circles, Agile practices, and DevOps initiatives, where adaptability and integrative thinking are crucial for success.
+Our learning and collaboration zones empower teams to engage with complexity, adapt in real time, and build resilience, ensuring they thrive amid change rather than being overrun by it.  In terms of application, our approach and methods have proven especially effective in corporate environments, leadership circles, Agile practices, and DevOps initiatives, where adaptability and integrative thinking are crucial for success.
 
 ---
 
@@ -39,7 +39,7 @@ It’s been our experience that integrating emotional intelligence with intentio
 
 The same tools that empower leaders to execute strategies and lead teams with confidence are helping parents navigate the complexities of raising children, manage high-conflict relationships, and restore trust in strained friendships.
 
-These methods enable individuals to approach difficult conversations and high-stakes situations with calm and clarity. What once felt like conflict becomes an opportunity to restore trust, deepen understanding, and foster genuine connection—even in emotionally charged moments.
+These methods enable individuals to approach challenging conversations and high-stakes situations with resilience and clarity. What once felt like conflict becomes an opportunity for trust-building, deep understanding, and genuine connection—even in emotionally charged moments.
 
 ---
 
