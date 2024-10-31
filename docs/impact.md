@@ -34,7 +34,7 @@ Following a major reorganization, a Fortune 500 data organization faced challeng
 
 **Impact:**
 
-- Rapid adoption of Agile mindset and methodologies.
+- Rapid adoption of Agile Mindset and methodologies.
 - Increased team cohesion and operational efficiency.
 - Long-term adaptability and alignment with new organizational goals.
 
